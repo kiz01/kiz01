@@ -8,4 +8,4 @@
 - 📫 How to reach me: https://linktr.ee/Kiz01
 - ⚡ Fun fact: I write.
 
-For my Literture Blog: https://vibesaroundus.wordpress.com/
+For my Literature Blog: https://vibesaroundus.wordpress.com/
