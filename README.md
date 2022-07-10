@@ -7,3 +7,5 @@
 - 💬 Ask me about somethings related to Cyber Security. 
 - 📫 How to reach me: https://linktr.ee/Kiz01
 - ⚡ Fun fact: I write.
+
+For my Literture Blog: https://vibesaroundus.wordpress.com/
